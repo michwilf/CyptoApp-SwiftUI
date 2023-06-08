@@ -3,5 +3,9 @@
 
 
 
-Uploading Screen Recording 2023-06-08 at 13.09.23.mov…
+
+
+
+
+https://github.com/michwilf/CyptoApp-SwiftUI/assets/50741250/cce02c44-1b5e-4f01-af9d-3196ed9f17dc
 
